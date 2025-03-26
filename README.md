@@ -1,1 +1,1 @@
-By Bessel,Niranjan,Praneel,Chintan
+By Bessel
